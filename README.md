@@ -1,1 +1,1 @@
-# epiu-painting.co.uk
+# epiu-painting
